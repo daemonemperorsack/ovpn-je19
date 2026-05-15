@@ -1,4 +1,4 @@
-
+Get the ultimate Golden Frog VyprVPN extension with Golden Frog VyprVPN vip Extension: obfuscation & OpenVPN-support. Featuring obfuscation and OpenVPN-support, it's the best
 
 
 
